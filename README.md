@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PickSawPlzz
 - 👀 I’m interested in cheats/exploits that makes my life easier.
-- 🌱 I’m currently learning to create my own hacked client
+- 🌱 I’m currently learning to create my own hacked client.
 - 💞️ I’m looking to collaborate on no one.
 - 📫 How to reach me, don't.
 - 😄 Pronouns: waht is this
